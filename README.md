@@ -1,4 +1,4 @@
-### Olá, Me chamo Madson Silva!😉
+### Olá, Me chamo Madson Silva!
 
 
 <div align="left">
